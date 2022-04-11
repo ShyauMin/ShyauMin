@@ -1,4 +1,4 @@
-### Hieeeee! Eu sou a Shyau Min
+### Hiee! Eu sou a Shyau Min
 
 <div align="center">
   <a href="https://github.com/shyaumin">
